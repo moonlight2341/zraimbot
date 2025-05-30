@@ -1,2 +1,0 @@
-# zraimbot
-zr aimbot 
